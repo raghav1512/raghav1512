@@ -22,5 +22,4 @@
 
 📫 **Connect with me:**  
 - **LinkedIn:** [https://linkedin.com](https://www.linkedin.com/in/raghav-agarwal-b942a61a3/)  
-- **Email:** raghav15agarwal@gmail.com.
--->
+- **Email:** raghav15agarwal@gmail.com
